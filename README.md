@@ -1,2 +1,10 @@
 # Hello-World
 Tutorial To Github?
+DANK
+MEMES
+CAN'T
+MELT
+MY
+STEEL
+DREAMS
+THANK YOU ~J
